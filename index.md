@@ -23,8 +23,6 @@ Feel free to share whatever, and however much, of your story as you want.  Pleas
 
 You might want to get an early start on your story.  When I went to type mine up, it took me twice as long as I expected and I had already expected it to take a long time ;-)
 
-And, of course, if you have any questions, lemmeno!
+And, of course, if you have any questions, let [/u/soberingthought](https://www.reddit.com/user/soberingthought/) know!
 
-Thanks,
-
-[/u/soberingthought](https://www.reddit.com/user/soberingthought/)
+Thanks!
